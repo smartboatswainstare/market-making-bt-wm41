@@ -1,4 +1,4 @@
-# 
+# smart bot de trading de FTX complementos es el mejor bot de trading de FTX complementos con optimización de latencia y gestión de apalancamiento. Seguro, confiable y optimizado
 
 
 
